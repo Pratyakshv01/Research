@@ -29,4 +29,3 @@ https://mobilityforesights.com/product/global-industrial-robot-vision-system-mar
 About Mobility Foresights,
 We are among the very few market research firms globally, specialized in mobility domain(s). Our zone of research entails automotive, aerospace, marine, locomotive, logistics and construction & agricultural equipment. We deal in syndicated research, custom research and consumer research for all the above domains mentioned.
 We envision the future of mobility every single day, following mobility domains is not just our profession rather it's our passion. We are here, just to serve you in the most ideal way and your fulfillment is above everything else. Contact us -  sales@mobilityforesights.com 
-
